@@ -1,4 +1,4 @@
-### Hello Fella 👋
+### Howdy! 👋
 
 I've worked with logistics for mostly 5 years, recently I decided to make a big change in my professional career. <br>
 Technology has been exactly what I've been looking all those years, without even knowing what I was really looking for. <br>
